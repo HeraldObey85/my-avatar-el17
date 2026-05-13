@@ -1,4 +1,4 @@
-#  
+#  Experience my avatar like never before with my avatar Scripts hidden, the #1 Script. Includes auto-farm and instant win for unbeatable performance.
 
 
 
